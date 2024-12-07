@@ -10,10 +10,10 @@
          ∆ VERSION : 3.1 ∆         
                                    
                                    
-• DEVOLPED BY : CRYPTO MASTER
-• PUBLISHED BY : AKMAL
-• WHAT'S APP: https://chat.whatsapp.com/LAsEGTdiwbIHh4U8Ok5px7
-• TELEGRAM : https://airdropconfirm97      
+• DEVOLPED BY : WOLF XD™
+• PUBLISHED BY : ASHE'S TRICKS
+• WHAT'S APP: +92 309 0225618
+• TELEGRAM : https://t.me/rose_xd_yt      
 
 • Join my Telegram Channel for Future  
     Updates and Scripts    
